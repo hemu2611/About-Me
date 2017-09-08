@@ -1,4 +1,4 @@
-Want to know my history like
+Want to know my basic info
 Name?
 Workplace?
 Day at Starbucks?
